@@ -1,0 +1,2 @@
+# LigaAngielska
+Czcibor rozpierdala kodem
